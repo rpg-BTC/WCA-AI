@@ -5,3 +5,9 @@ WCA-AI is a local artifical intelligence that runs directly on the CPU, The requ
 Copyright WCA-OS© 2026 All Rights Reserved
 
 
+Email Report: wcareport2026@gmail.com
+
+
+Subscribe for Youtube Channel: https://youtube.com/@adamwca-26?si=Hq8c4hg7atJmBt70
+
+Subscribe for X Channel: https://x.com/rpg277535
